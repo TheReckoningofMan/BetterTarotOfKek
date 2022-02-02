@@ -1,0 +1,9 @@
+PepeTarot was created and illustrated by Sapo.
+https://foracle.medium.com/
+https://pepetarot.cards/
+https://foracle.art
+paintswap
+Edition 0
+https://paintswap.finance/marketplace/collections/0x17b28274f8c1d64b683ad097988fa5707b228f80
+Edition 1
+https://paintswap.finance/marketplace/collections/0x97fba89cbf08d1bfeedf9bd561ff464a0a9b8038
